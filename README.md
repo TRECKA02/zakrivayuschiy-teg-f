@@ -1,1 +1,1 @@
-https://github.com/TRECKA02/zakrivayuschiy-teg-f.git
+https://github.com/TRECKA02/zakrivayuschiy-teg-ad.git
